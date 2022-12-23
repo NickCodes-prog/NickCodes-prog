@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NickCodes-prog 
+- 👀 I’m interested in ... Hacking/programação
+- 🌱 I’m currently learning ... Html
+- 💞️ I’m looking to collaborate on ... Muitas coisas
+- 📫 How to reach me ... discord: Mozart#9302

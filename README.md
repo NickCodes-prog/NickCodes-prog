@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NickCodes-prog 
-- 👀 I’m interested in ... Hacking/programação
-- 🌱 I’m currently learning ... Html
-- 💞️ I’m looking to collaborate on ... Muitas coisas
-- 📫 How to reach me ... discord: Mozart#9302
+- 👀 I’m interested in ... Hacking/programming
+- 🌱 I’m currently learning ... Html, CSS, C and C++.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ... discord: Koenigkann
